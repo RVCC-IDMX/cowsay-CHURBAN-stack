@@ -1,3 +1,3 @@
-# Animal Fun
+# Animal Fuun
 ## Varied Animals
 
